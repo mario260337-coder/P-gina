@@ -1,2 +1,0 @@
-# P-gina
-Apresentação profissional.
